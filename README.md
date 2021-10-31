@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @AmauryPro
+- 🌱 I’m currently learning IT at Enseirb MatMeca
